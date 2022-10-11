@@ -1,1 +1,0 @@
-# sethgocode.github.io
